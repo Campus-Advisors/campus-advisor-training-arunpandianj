@@ -1,4 +1,4 @@
-ARUN PANDIAN J
+Arun Pandian J
 
 # Module 2.2 Assignment
 
